@@ -30,3 +30,7 @@ Taktiklerle Problemler
 https://youtube.com/playlist?list=PL5kIOunpmSBPFfNv2ylHCr0D61ev8KOXE
 
 Tyt fizik
+
+https://youtube.com/playlist?list=PLfDR1L2cKH5RbzXrknqg3cHphc5uLOYvm
+
+Tyt kimya
